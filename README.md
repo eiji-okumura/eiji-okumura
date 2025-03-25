@@ -6,4 +6,4 @@
 always c*h and int yayayayahy 🍊
 
 ![](https://64.media.tumblr.com/7153b2d5eb602554226b9a7cf18137c5/tumblr_pc6320AwVP1xaeq2io1_1280.pnj)
-🍀🍀🍀
+🍀♡₊˚ ☘️・₊✧
